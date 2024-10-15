@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Czykaye
+- 👀 I’m interested in helping busy professionals achieve their goals by providing efficient and organized support.
+- 🌱 I’m currently learning about the latest productivity tools and time management techniques.
+- 💞️ I’m looking to collaborate onprojects that require a highly organized and detail-oriented virtual assistant.
+- 📫 How to reach me : Email - czykayecabildo7@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact:  I can manage multiple calendars, schedule meetings, and handle complex travel arrangements with ease.
